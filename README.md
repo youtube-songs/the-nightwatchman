@@ -1,0 +1,52 @@
+# The Nightwatchman
+
+### [One Man Revolution](https://www.youtube.com/watch_videos?title=One%20Man%20Revolution&video_ids=xVAVc7MIWP8,yU23yBrT-_A,8fNhpgLp2Po,KFbmAHWGE3w,A8EY4ZWiokM,gdWb-j_w2Iw,o_wjKDR7r6Y,Y_3dhLpuuOc,VBy0xWIG8do,qT5diwh4gq8,jynhXVN-D14,YU3a1AuzI2c,ZbOFM68aC8o)
+1. :cd: "[California's Dark](https://www.youtube.com/watch?v=xVAVc7MIWP8)"
+1. :cd: "[One Man Revolution](https://www.youtube.com/watch?v=yU23yBrT-_A)"
+1. :cd: "[Let Freedom Ring](https://www.youtube.com/watch?v=8fNhpgLp2Po)"
+1. :cd: "[The Road I Must Travel](https://www.youtube.com/watch?v=KFbmAHWGE3w)"
+1. :cd: "[The Garden of Gethsemane](https://www.youtube.com/watch?v=A8EY4ZWiokM)"
+1. :cd: "[House Gone Up in Flames](https://www.youtube.com/watch?v=gdWb-j_w2Iw)"
+1. :cd: "[Flesh Shapes the Day](https://www.youtube.com/watch?v=o_wjKDR7r6Y)"
+1. :cd: "[Battle Hymns](https://www.youtube.com/watch?v=Y_3dhLpuuOc)"
+1. :cd: "[Maximum Firepower](https://www.youtube.com/watch?v=VBy0xWIG8do)"
+1. :cd: "[Union Song](https://www.youtube.com/watch?v=qT5diwh4gq8)"
+1. :cd: "[No One Left](https://www.youtube.com/watch?v=jynhXVN-D14)"
+1. :cd: "[The Dark Clouds Above](https://www.youtube.com/watch?v=YU3a1AuzI2c)"
+1. :cd: "[Until the End](https://www.youtube.com/watch?v=ZbOFM68aC8o)"
+
+### [The Fabled City](https://www.youtube.com/watch_videos?title=The%20Fabled%20City&video_ids=eTxjbgUt6H8,pPjvtorTt8U,R0aWOX1zu9A,I8X-6QSZeAg,tehAPIxD8Nc,QNHPx718V3k,j4HfGBLY-FE,-PohES7Vmho,HW0fWdKTt_k,yJK8nDYL6aI,TmQ7NlO6Tv4)
+1. :cd: "[The Fabled City](https://www.youtube.com/watch?v=eTxjbgUt6H8)"
+1. :cd: "[Whatever It Takes](https://www.youtube.com/watch?v=pPjvtorTt8U)"
+1. :cd: "[The King of Hell](https://www.youtube.com/watch?v=R0aWOX1zu9A)"
+1. :cd: "[Night Falls](https://www.youtube.com/watch?v=I8X-6QSZeAg)"
+1. :cd: "[The Lights Are On in Spidertown](https://www.youtube.com/watch?v=tehAPIxD8Nc)"
+1. :cd: "[Midnight in the City of Destruction](https://www.youtube.com/watch?v=QNHPx718V3k)"
+1. :cd: "[Saint Isabelle](https://www.youtube.com/watch?v=j4HfGBLY-FE)"
+1. :cd: "[Lazarus On Down](https://www.youtube.com/watch?v=-PohES7Vmho)"
+1. :cd: "[Gone Like Rain](https://www.youtube.com/watch?v=HW0fWdKTt_k)"
+1. :cd: "[The Iron Wheel](https://www.youtube.com/watch?v=yJK8nDYL6aI)"
+1. :cd: "[Rise to Power](https://www.youtube.com/watch?v=TmQ7NlO6Tv4)"
+
+### [Union Town](https://www.youtube.com/watch_videos?title=Union%20Town&video_ids=uinygtFlOCA,czQh1vj1jF8,YFUMEKD620w,1P3PnbRFd_c,knwaFenE7FQ,lZ-UgAUEPa0,FwFG9X1fmf0)
+1. :cd: "[Union Town](https://www.youtube.com/watch?v=uinygtFlOCA)"
+1. :cd: "[Solidarity Forever](https://www.youtube.com/watch?v=czQh1vj1jF8)"
+1. :cd: "[Which Side Are You On?](https://www.youtube.com/watch?v=YFUMEKD620w)"
+1. :cd: "[A Wall Against the Wind](https://www.youtube.com/watch?v=1P3PnbRFd_c)"
+1. :cd: "[16 Tons](https://www.youtube.com/watch?v=knwaFenE7FQ)"
+1. :cd: "[This Land Is Your Land](https://www.youtube.com/watch?v=lZ-UgAUEPa0)"
+1. :cd: "[I Dreamed I Saw Joe Hill Last Night](https://www.youtube.com/watch?v=FwFG9X1fmf0)"
+
+### [World Wide Rebel Songs](https://www.youtube.com/watch_videos?title=World%20Wide%20Rebel%20Songs&video_ids=9ftQOWPWZZU,BmktWE4o1sk,kr6ElWQg7Zo,lpmRU2TPJ-Y,73tz8bZPvG0,-UtueH3QOt8,s0pjU5Ek8Z8,Pr8nPhIJFxY,Xrq-JzSAug8,UPQ9OxStzRg,60ZfJCWglbU,8H5VMJG5qmg)
+1. :cd: "[Black Spartacus Heart Attack Machine](https://www.youtube.com/watch?v=9ftQOWPWZZU)"
+1. :cd: "[The Dogs of Tijuana](https://www.youtube.com/watch?v=BmktWE4o1sk)"
+1. :cd: "[It Begins Tonight](https://www.youtube.com/watch?v=kr6ElWQg7Zo)"
+1. :cd: "[Save the Hammer for the Man](https://www.youtube.com/watch?v=lpmRU2TPJ-Y)"
+1. :cd: "[The Fifth Horseman of the Apocalypse](https://www.youtube.com/watch?v=73tz8bZPvG0)"
+1. :cd: "[Speak and Make Lightning](https://www.youtube.com/watch?v=-UtueH3QOt8)"
+1. :cd: "[Facing Mount Kenya](https://www.youtube.com/watch?v=s0pjU5Ek8Z8)"
+1. :cd: "[The Whirlwind](https://www.youtube.com/watch?v=Pr8nPhIJFxY)"
+1. :cd: "[Stray Bullets](https://www.youtube.com/watch?v=Xrq-JzSAug8)"
+1. :cd: "[Branding Iron](https://www.youtube.com/watch?v=UPQ9OxStzRg)"
+1. :cd: "[World Wide Rebel Songs](https://www.youtube.com/watch?v=60ZfJCWglbU)"
+1. :cd: "[God Help Us All](https://www.youtube.com/watch?v=8H5VMJG5qmg)"
